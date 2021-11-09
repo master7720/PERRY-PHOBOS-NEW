@@ -1,4 +1,4 @@
-one of my friends sent this to my xDDD 
+one of my friends sent this to me xDDD 
 
 this client also has a tracker in it lol
 
