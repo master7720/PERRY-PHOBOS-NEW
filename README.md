@@ -1,9 +1,1 @@
-one of my friends sent this to me xDDD 
-
-this client also has a tracker in it lol
-
-YES DIS DOES HAVE THE NEW POPCHAMS
-
-sorry perry.
-
-THIS CLIENT HAS A RAT IN IT
+got leaked by someone.yes the jar i have DOES have the tracker on it use this one its clean and its buildable https://github.com/noatmc/Perry-Phobos-Leaked-Buildable
